@@ -9,3 +9,20 @@ This week I was not present for class Wednesday and thursday. On monday and tues
 # Reflection 11
 ## 4-26-18
 This week I learned though code acadmy bootstrap and learned how to do this. Learning this helped me better my profile profile and improve my grade. I also imporved my knowledge in code in general. I also leaned how to play fortnite
+
+# Reflection Day MR.gold gone
+## 4-30-18
+What I did today was work on my google friday, I got it done. All complete
+
+# Reflection Day 2 Mr.Gold gone
+## 5-1-18
+What I did and completed my google friday. I found a issue with it dso I fixed it
+
+#Reflectioon Day 3 
+## 5-2-18
+I worked on my profiel and got it almost done. I found out that I was alsomst complete but not all the way done
+
+#reflection day 4
+## 5-3-18
+
+I finished everyything and closed off the week all good 
