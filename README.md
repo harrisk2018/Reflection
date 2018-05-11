@@ -26,3 +26,9 @@ I worked on my profiel and got it almost done. I found out that I was alsomst co
 ## 5-3-18
 
 I finished everyything and closed off the week all good 
+
+
+#Reflection15
+## 5-11-18
+
+This week during class we went over java script, we learned the basic concept of it and how to make pop up alerts. We have a sotry going through ippism and yeah. I worked on my google firday and added the ranking to the nfl draft prospects. I learned about java even more twords the end of the weeek. Overall it was a good week. 
