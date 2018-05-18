@@ -32,3 +32,8 @@ I finished everyything and closed off the week all good
 ## 5-11-18
 
 This week during class we went over java script, we learned the basic concept of it and how to make pop up alerts. We have a sotry going through ippism and yeah. I worked on my google firday and added the ranking to the nfl draft prospects. I learned about java even more twords the end of the weeek. Overall it was a good week. 
+
+#Reflection16
+## 5-18-18
+
+This is are final reflection. During this semester I learned, boot strap and java script. Profile project. We worked on projects such as a profile, pizza order website. I leaned how to write code to termainal. I look foward going foward with this class. 
